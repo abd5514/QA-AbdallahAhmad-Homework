@@ -1,1 +1,1 @@
-my favorite food is whatever
+my favorite food is whenever
